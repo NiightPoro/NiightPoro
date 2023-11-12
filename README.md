@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @NiightPoro
+- 👀 I’m interested in creating random stuff to make my life easier lmao
